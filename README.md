@@ -1,18 +1,18 @@
-# إتقان كلين - Etqan Cleaning
+# Etqan Cleaning
 
-أفضل شركة تنظيف بالطائف | إتقان كلين لتنظيف المنازل والخزانات والمجالس
+Best Cleaning Company in Taif | Etqan Cleaning for Homes, Tanks, and Majlis
 
-## خدماتنا
-- تنظيف منازل وشقق وفلل بالطائف.
-- تنظيف خزانات وتعقيمها بالطائف.
-- تنظيف مجالس وكنب بالطائف.
-- مكافحة حشرات بالطائف.
-- تنظيف بالبخار.
+## Our Services
+- Cleaning of homes, apartments, and villas in Taif.
+- Cleaning and sterilization of water tanks in Taif.
+- Cleaning of majlis and sofas in Taif.
+- Pest control in Taif.
+- Steam cleaning.
 
-## مميزاتنا
-- سرعة إنجاز.
-- عمالة مدربة ومحترفة.
-- أسعار تنافسية وجودة عالية.
+## Why Choose Us
+- Fast execution.
+- Trained and professional staff.
+- Competitive prices and high quality.
 
-## روابط هامة
-- الموقع الإلكتروني: [https://etqancleaning.com/](https://etqancleaning.com/)
+## Important Links
+- Website: [https://etqancleaning.com/](https://etqancleaning.com/)
